@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI devlopment
 - 🌱 I’m currently learning ML
 - 💞️ I’m looking to collaborate on myself
-- 📫 priyanshusuryawanshi908@gmail.com
+- 📫 priyanshusuryawanshi002@gmail.com
 - 😄 Pronouns: priyanshu
 - ⚡ Fun fact: i am a ideot
 
